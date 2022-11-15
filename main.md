@@ -12,4 +12,4 @@
     Thank you! Thank you,
     Sam-I-am!
 
-- _Dr. Seuss , 1985_
+- _Dr. Seuss , 1972_
